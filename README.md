@@ -1,1 +1,1 @@
-# BS-DS-AI---Year-1---Trimester-1---2025
+# BS DS&AI - Year 1 - Trimester 1 - 2025
